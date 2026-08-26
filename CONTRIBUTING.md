@@ -2,7 +2,7 @@
 ## How you can help
 1. Contact your relevant politicians and raise concerns about corporations being able to take down any content they want with little to no oversight, blanket anti-circumvention measures, and other aspects of copyright law which Nintendo frequently abuses. This will depend on your jurisdiction of who to contact and about what specifically.
 2. Dissuade friends and family from supporting Nintendo, make them aware of Nintendo's evils and abuses of law.
-3. Refute all Nintendrones on Shitter/Xcrement.
+3. Refute all bootlicking Nintendrones on Shitter/Xcrement.
 4. Support competitors who aren't being giant dickheads to fans (e.g. Palworld).
 
 ## Voting with your wallet won't do shit
